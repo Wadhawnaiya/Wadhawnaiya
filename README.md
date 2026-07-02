@@ -61,7 +61,7 @@ ICAI & Major Enterprises (Pan-India)
 Wadhawaniya & Co., Ahmedabad  
 - Embedding Industry 4.0 (Big Data, IoT, RPA, AI) into traditional audits  
 - BRSR reporting and ESG advisory aligned with global frameworks  
-- Full-service CA firm (GST, Income Tax, Statutory Audits, FEMA, RERA)
+- Full-service CA practice (GST, Income Tax, Statutory Audits, FEMA, RERA)
 
 **Chief Educator** (2022 – Present)  
 StrideX CPA(US) — Global  
